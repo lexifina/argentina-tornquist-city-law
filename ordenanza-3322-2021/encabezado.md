@@ -1,0 +1,21 @@
+Ordenanza Nº3322/21
+Ordenanza Nº 3322/21
+Tornquist, 04/05/2021
+Que el Decreto N° 2.875/05 (texto según Decreto N° 436/15), reglamentario de la Ley N° 12539 prevé en su Artículo 20º inciso c), la conformación de la Mesa Intersectorial Provincial contra la Violencia Familiar, así como la de las Mesas Locales Intersectoriales en cada uno de los municipios, de acuerdo a la conformación allí establecida, como espacios de articulación y coordinación en el ámbito local, regional y provincial de todas las políticas públicas dirigidas a la prevención y atención de la violencia familiar; y;
+CONSIDERANDO:
+Que La Ley Nacional N° 26.485 amplía sentidos en relación al reconocimiento de los diferentes espacios donde se cristalizan los diferentes tipos de violencias por razones de género;
+Que de tal modo en el Artículo 5º de la mencionada Ley se reconocen los distintos tipos de violencia: física, psicológica, sexual, económica patrimonial y simbólica; mientras que en su Artículo 6º, se identifican las diferentes modalidades, entendidas como las formas en que se manifiestan los distintos tipos de violencia contra las mujeres en los diferentes ámbitos: violencia doméstica, violencia institucional, violencia laboral, violencia contra la libertad reproductiva, violencia obstétrica, violencia mediática, el acoso callejero (modificatoria Ley 27501) y la violencia política (modificatoria Ley 27533);
+Que la Ley Provincial Nº 12.569 de Protección contra la Violencia Familiar, establece por violencia familiar: “toda acción, omisión, abuso que afecte la integridad física, psíquica, moral, sexual y/o la libertad de una persona en el ámbito del grupo familiar, aunque no configure delito”;
+Que las violencias por razones de género constituyen un grave problema social, que implica la violación de derechos humanos fundamentales, ya sea que se inscriban en el ámbito público como en el privado;
+Que dichas violencias evidencian sistemas de relaciones desiguales de poder, que impiden la construcción de relaciones democráticas al interior de las diferentes organizaciones sociales que se sostienen en razones de género, lo cual se constituye en un obstáculo para el desarrollo con justicia social y equidad;
+Que el aporte de los estudios de género, ha sido fundamental para comprender la dimensión del problema de las violencias, sus tipos, modalidades y alcances;
+Que a su vez el género como categoría analítica amplifica la mirada respecto a las problemáticas que atraviesan las mujeres y LGTBI+;
+Que las violencias por razones de género deben ser comprendidas en los términos de la Ley Nacional de Protección Integral para Prevenir, Sancionar, Erradicar la violencia contra las mujeres en los ámbitos en que se desarrollen sus relaciones interpersonales (26.485), como “toda conducta, por acción u omisión, que de manera directa o indirecta, tanto en el ámbito público como en el privado, basada en una relación desigual de poder, afecte la vida, libertad, dignidad, integridad física, psicológica, sexual, económica o patrimonial, participación política, como así también la seguridad personal de las mujeres” y de LGTBI+;
+Que las Mesas Locales Intersectoriales son un espacio en donde se reúnen los representantes de las distintas instituciones u organismos vinculados a la problemática, con la finalidad de fijar y unificar pautas y acciones que les permitan trabajar articuladamente, interinstitucionalmente y con una mirada interdisciplinaria, para poder dar una respuesta integral a las personas que atraviesan situaciones de violencia de género;
+Que en el Distrito de Tornquist se creó el Consejo Municipal de Mujeres bajo Ordenanza Nº 3051/18;
+Que entre los objetivos del Consejo Municipal de Mujeres se encuentra trabajar intersectorialmente y en forma mancomunada con ámbitos estatales y Organizaciones no Gubernamentales con el fin de brindar respuestas a mujeres Víctimas de Violencia y/o situación en casos de madres solteras, madres solas, etc.;
+Que en razón de lo expuesto resulta necesario crear, dentro del ámbito municipal, un espacio donde se organicen y acuerden acciones en relación a la prevención y atención de la violencia familiar y de las violencias por razones de género;
+POR ELLO:
+EL HONORABLE CONCEJO DELIBERANTE
+En uso de sus facultades, sanciona con fuerza de
+ORDENANZA
