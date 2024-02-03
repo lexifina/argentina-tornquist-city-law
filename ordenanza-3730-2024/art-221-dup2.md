@@ -1,0 +1,1 @@
+ARTÍCULO 221º: Serán responsables del pago del derecho que se fija en el presente Código; los propietarios de los predios, usufructuarios o poseedores a título de dueño de donde se encuentre la explotación o quienes realicen la explotación del mismo.

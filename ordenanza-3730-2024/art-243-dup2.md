@@ -1,0 +1,1 @@
+ARTÍCULO 243º: La falta de pago de los permisos del presente Capítulo, dará derecho a esta Municipalidad a proceder a la incautación de los bienes ofertados, hasta tanto el pago sea satisfecho, más un recargo del 100% del permiso correspondiente. El Municipio no se responsabiliza por los posibles deterioros y/o pérdidas de valor durante la tenencia en esta Comuna.

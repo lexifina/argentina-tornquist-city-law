@@ -1,0 +1,1 @@
+ARTÍCULO 252º: Para la realización de fiestas, bailes, conciertos, cenas, ferias o cualquier otro espectáculo o reunión, alcanzados por el hecho imponible, las entidades o personas que lo organizan deberán solicitar con anterioridad la autorización respectiva y abonar el día hábil siguiente a la realización del evento, los derechos pertinentes.

@@ -1,0 +1,1 @@
+ARTÍCULO 84º: Salvo disposiciones especiales de este Código Municipal Tributario, la tasa será proporcional a la suma de los ingresos brutos devengados durante el período fiscal por el ejercicio de la actividad gravada.

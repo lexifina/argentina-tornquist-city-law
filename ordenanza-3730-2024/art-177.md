@@ -1,0 +1,1 @@
+ARTÍCULO 177º: Cuando una persona no tenga familia o cuando sus familiares se encuentren en una situación económica muy crítica, tal que no le permita afrontar ningún tipo de gasto, quedará exento del pago de la Tasa. El Departamento Ejecutivo, previo informe social que fundamente la decisión, determinará la mejor opción para realizar la inhumación, únicamente en sepultura.

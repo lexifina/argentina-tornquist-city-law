@@ -1,0 +1,2 @@
+ARTÍCULO 232º: Todo vehículo debe llevar en lugar visible la chapa correspondiente, otorgada por el Registro Nacional de la Propiedad del Automotor (moto-vehículos), o en su defecto estará considerado como no patentado.
+Los que circulen sin ella, serán conducidos al corralón municipal o al corralón más próximo, por el Inspector o Agente de Policía y se levantará acta de la infracción cometida. No podrá ser retirado sin previo pago de la patente respectiva y las multas en que hubiere incurrido.

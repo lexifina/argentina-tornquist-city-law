@@ -1,0 +1,2 @@
+ARTÍCULO 6º: Corresponde al Departamento Ejecutivo la interpretación y aplicación de esta Ordenanza Tributaria, pero siempre estará en el marco de la Ley Orgánica de las Municipalidades y de lo que se desprende de la Constitución de la Provincia de Buenos Aires.
+En la interpretación de las disposiciones de éste Código Municipal Tributario, son admisibles todos los métodos, pero para interpretar y determinar la naturaleza de los hechos imponibles, se atenderá principalmente a los actos o situaciones efectivamente realizados y a su significación económica.

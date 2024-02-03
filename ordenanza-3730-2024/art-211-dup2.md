@@ -1,0 +1,1 @@
+ARTÍCULO 211º: Estarán constituidos por el estudio de planos de mensura y/o fraccionamiento y los relevamientos topográficos-catastrales realizados por las oficinas técnicas municipales a pedido de particulares.

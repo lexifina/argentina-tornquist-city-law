@@ -1,0 +1,2 @@
+ARTÍCULO 260º: El Ejecutivo Municipal podrá formular propuestas y presentarlas para su aprobación para financiarlas por el mecanismo de Contribución por Mejoras cuando se hayan cumplido las condiciones anteriores.
+Los vecinos podrán recusar la obra cuando logren el setenta por ciento (70%) de adhesiones de los beneficiarios directos que sean residentes en dicha propiedad o desarrollen actividades comerciales. Quedan excluidos de participar en una recusación los propietarios de inmuebles baldíos.

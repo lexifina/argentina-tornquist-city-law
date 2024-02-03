@@ -1,0 +1,2 @@
+ARTÍCULO 207º: El contribuyente deberá abonar de contado el Trámite de Inicio por Carpeta de Obra y los sellados correspondientes. El pago de los Derechos podrá realizarse mediante la firma de un convenio de pago.
+El convenio citado, será indefectiblemente suscripto por el propietario del inmueble o tercero legalmente autorizado y deberá estar cancelado previo al otorgamiento del final de obra, sin perjuicio del cobro de las diferencias que puedan surgir con motivo de la liquidación definitiva en oportunidad de la terminación de la obra.

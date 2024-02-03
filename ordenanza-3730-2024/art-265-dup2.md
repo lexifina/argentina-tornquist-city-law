@@ -1,0 +1,1 @@
+ARTÍCULO 265º: La contribución por valorización es adicional a otras exigencias urbanísticas como ser: restricciones al dominio, cesiones de suelo con fin público y obras exigibles para la factibilidad de la obra o del desarrollo urbanístico.

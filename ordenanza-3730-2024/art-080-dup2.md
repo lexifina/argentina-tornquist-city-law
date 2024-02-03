@@ -1,0 +1,1 @@
+ARTÍCULO 80º: Comprobada la existencia de locales o establecimientos enunciados en este Capítulo, sin la correspondiente habilitación, se procederá a su clausura, en el acto de su constatación o a su incorporación de oficio, aplicando los tiempos de gestión y los recargos por incumplimientos ya expresados en párrafos precedentes.

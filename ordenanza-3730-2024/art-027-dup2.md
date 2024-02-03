@@ -1,0 +1,1 @@
+ARTÍCULO 27º: Los pagos efectuados por los contribuyentes o responsables deberán ser imputados a las deudas originadas en años más remotos, no prescriptos, acreditándose a los saldos anuales por intereses, multas y tributos en ese orden.

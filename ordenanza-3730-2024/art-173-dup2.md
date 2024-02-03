@@ -1,0 +1,3 @@
+ARTÍCULO 173º: Toda introducción o traslado fuera del cementerio local de ataúdes con el objeto de cremación de restos a un crematorio público o privado, previo al retiro deberá abonarse el importe previsto en este Código.
+Inciso 1.- Será responsabilidad de la persona que solicite el retiro de restos con destino a cremación cualquier situación que dicha intervención demande. -
+Inciso 2: La administración del cementerio llevará un registro de los restos con destino a cremación siendo requisito presentar nota solicitando el depósito, copia del crematorio que acredite dicha intervención y fotocopia del documento del responsable de los restos a trasladar.

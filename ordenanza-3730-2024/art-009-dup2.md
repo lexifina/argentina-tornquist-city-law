@@ -1,0 +1,3 @@
+ARTÍCULO 9º: En las transferencias de bienes, negocios, activos y pasivos de personas, entidades civiles o comerciales o en cualquier acto de similar naturaleza, se deberá acreditar la inexistencia de deudas fiscales municipales, hasta la fecha de otorgamiento del acto, mediante certificación expedida por la autoridad municipal.
+Los escribanos autorizantes y demás profesionales, deberán recaudar o asegurar el pago de los gravámenes a que se refiere el párrafo anterior, o los correspondientes al mismo acto.
+La expedición del certificado de deuda, sólo tiene por objeto facilitar el acto al cual se refiere y no posee efecto liberativo, salvo cuando expresamente lo indicare el mismo certificado.

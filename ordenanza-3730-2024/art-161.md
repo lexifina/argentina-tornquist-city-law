@@ -1,0 +1,1 @@
+ARTÍCULO 161º: Derechos por Servicios Turísticos se abona por el derecho de estacionamiento, entrada o estadía en las unidades turísticas del Distrito de Tornquist, que no se encuentren concesionadas.

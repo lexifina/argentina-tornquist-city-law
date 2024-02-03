@@ -1,0 +1,1 @@
+ARTÍCULO 183º: Serán responsables solidariamente por el pago de los derechos, los permisionarios, locatarios, usufructuarios, comodatarios o usuarios de los espacios mencionados, o cualquier título, incluidas las empresas de servicios públicos.

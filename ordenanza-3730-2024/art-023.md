@@ -1,0 +1,1 @@
+ARTÍCULO 23º: El Departamento Ejecutivo o funcionario en quienes éste hubiere delegado la facultad de verificación y fiscalización, podrá requerir el auxilio de la fuerza pública y orden de allanamiento de la autoridad judicial, para llevar a cabo las inspecciones a locales o establecimientos y obtener acceso a toda la información.

@@ -1,0 +1,1 @@
+ARTÍCULO 25º: El pago de los gravámenes deberán efectivizarse en el domicilio de la Municipalidad, o donde ésta determine, en dinero efectivo, cheque, giro, transferencia electrónica o débito automático. Cuando el pago no se efectúe en efectivo, la obligación no se considerará extinguida hasta tanto no se haga efectiva su acreditación.

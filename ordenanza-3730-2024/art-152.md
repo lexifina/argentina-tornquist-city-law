@@ -1,0 +1,1 @@
+ARTÍCULO 152º: El Departamento Ejecutivo queda facultado, para disponer que quienes por su actividad intervengan en operaciones vinculadas con situaciones definidas en este título como hecho imponible de la presente tasa, deban actuar como agentes de percepción, retención y/o información, estableciendo por vía reglamentaria las modalidades para su cumplimiento.

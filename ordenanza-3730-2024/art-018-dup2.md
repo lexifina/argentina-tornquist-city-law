@@ -1,0 +1,4 @@
+ARTÍCULO 18º: Cuando el contribuyente o responsable no posea domicilio, ni representante válido en el Partido, se considerará como domicilio fiscal, el lugar de su establecimiento permanente o de cualquier otro establecimiento, si no pudiera establecerse aquel orden.
+Se considerará establecimiento permanente, en especial el lugar de: I) administración, gerencia o dirección de negocios, II) sucursales, III) oficinas, IV) fábricas, V) talleres, VI) explotaciones de recursos naturales, agropecuarios, mineros o de otro tipo, VII) edificio, obra o depósito, VIII) cualquier otro de similares características.
+Las facultades que se acuerdan para el cumplimiento de las obligaciones fiscales, fuera de la jurisdicción municipal, no alteran las normas precedentes sobre domicilio fiscal, ni implican declinación de jurisdicción.
+CAPÍTULO 4: DE LAS OBLIGACIONES FISCALES

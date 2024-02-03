@@ -1,0 +1,18 @@
+ARTÍCULO 48º: La determinación del monto a liquidar se obtiene multiplicando la base imponible por una alícuota conforme la zona en la que se encuentre comprendido el inmueble, la cual podrá variar en función del destino que el contribuyente haga de dicho inmueble, el cual se puede clasificar en: residencial, comercial o baldío.
+Inciso 1.- De la clasificación de las zonas
+ZONA 1 y 2: Comprenden todas las propiedades ubicadas sobre calles de asfalto, con servicio de alumbrado público y que gocen de todos los demás servicios.
+ZONA 3: Comprende todas las propiedades ubicadas sobre calles de tierra, en donde se prestan los servicios de arreglo, conservación y riego de calles, los de recolección de residuos y el alumbrado público.
+ZONA 4: Comprende todas las propiedades ubicadas dentro del ejido urbano de Tornquist, Sierra de la Ventana (Ba. Valle Hermoso, La Cumbre, San Bernardo Nuevo), Villa Ventana, La Gruta (incluye San Andrés), Tres Picos, Saldungaray y Chasicó, que cuentan con los servicios de arreglo y conservación de calles.
+ZONA 5: Comprende todas las propiedades ubicadas en loteos abiertos tipo barrio parque, ejemplo Barrio Parque Golf de Sierra de la Ventana, urbanizaciones cerradas, ejemplo club de campo, country, conjuntos inmobiliarios, etc., tengan o no calles de asfalto, en donde se preste como mínimo alguno de los servicios enumerados.
+ZONA 6: Comprende todas las propiedades ubicadas en zonas complementarias, que se le preste únicamente el servicio de recolección de residuos.
+La delimitación de las zonas, si corresponden, serán reglamentadas por el Departamento Ejecutivo.
+Inciso 2.- Del destino del contribuyente
+a) Comercial: Comprende el destino de un bien inmueble para cualquier actividad comercial, sea esta administrativa, de servicio, de intercambios comerciales o cualquier otra que por su naturaleza no esté contemplada en ninguna de las otras dos categorías. Se inscriben en este destino todas las categorías de comercialización de espacios de habitación, desde hoteles, albergues, cabañas, tiempos compartidos y alquiler de casas, aún cuando las mismas sean solo por un período.
+b) Residencial: Comprende al uso por el cual se destina una construcción para habitación, pudiendo ser ocupada por uno o más hogares según la caracterización del INDEC para los Censos.
+c) Baldío: Comprende a los inmuebles que no cuenten con mejoras, que las mismas no se encuentren en condiciones, no se las utiliza o que la relación entre el suelo y la mejora se mantiene por debajo de los límites señalados. Se considera baldío a:
+1- El suelo libre de mejoras, a partir de que el mismo es generado y cuenta con el alta provisoria de la autoridad de aplicación del Municipio o de la Provincia.
+2 - El inmueble que no se usa, sea porque está cerrado o porque su estado de abandono no lo permite.
+3 - Las construcciones sin terminar, que acrediten un año de ejercicio fiscal sin avance significativo.
+4 - Aquellas superficies construidas que sean inferiores a 30 m2 en una parcela o que su relación entre lo construido y el suelo sea inferior al 15%.
+5 - Las construcciones precarias y sin permiso de construcción.
+d) Alojamientos sin habilitar: Comprende todos aquellos complejos, cabañas y similares que no hayan cumplido con la habilitación municipal, luego de la correspondiente inspección realizada por los inspectores municipales. El importe que les corresponde tributar hasta tanto regularicen la situación, será una Tasa de Servicios Públicos Urbanos adicional mensual, equivalente a tres veces, de lo que establece el ARTÍCULO 49 de esta Ordenanza, considerando la categoría RESIDENCIAL junto a la zona y la localidad según corresponda el contribuyente.

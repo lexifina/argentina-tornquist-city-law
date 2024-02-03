@@ -1,0 +1,1 @@
+ARTÍCULO 262º: El Departamento Ejecutivo determinará los plazos del pago de la Contribución, el cual permitirá al contribuyente la opción del pago contado o en cuotas. Cuando la opción sean las cuotas, éstas no podrán exceder los 48 (cuarenta y ocho) meses con un interés de financiación que no podrá superar la evolución del índice de la construcción determinado por el INDEC.

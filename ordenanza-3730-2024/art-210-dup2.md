@@ -1,0 +1,9 @@
+ARTÍCULO 210º: Están exentos del pago de los Derechos de Construcción:
+Inciso 1.- Los inmuebles de dominio del Municipio de Tornquist.
+Inciso 2.- Las instituciones religiosas, los templos destinados al culto y sus dependencias que sean oficialmente reconocidos. La construcción de sepulcros.
+Inciso 3.- Las entidades sociales y deportivas sin fines de lucro, con asiento en el Distrito.
+Inciso 4.- Las fundaciones y las asociaciones con personería jurídica que tengan fines de asistencia social, beneficencia o bien público.
+Inciso 5.- Las obras de restauración o puesta en valor de inmuebles tutelados con declaratorias de Monumento Histórico, Interés Patrimonial o Interés Turístico, siempre y cuando las mismas hayan sido realizadas por autoridad competente (municipio, provincia o nación). En el caso de que posteriormente la obra se demuela o altere el sentido de la recuperación del bien, los derechos de construcción deberán ser pagados al valor vigente al momento de la acción, de forma complementaria con otras imposiciones.
+Inciso 6.- Las obras de vivienda de interés social, siempre que el titular sea una persona que residente y acredite dicha residencia en el Distrito por un período mínimo de 5 años consecutivos, cuando a criterio del Departamento Ejecutivo se encuentre fundada en razones de promoción social se bonificará los derechos consignados en el presente capítulo y siempre que se trate de vivienda única, familiar y de habitación permanente de hasta 60 m2.
+Inciso 7.- Beneficiarios del Programa Crédito Argentino del Bicentenario para la vivienda única familiar (Pro.Cre.Ar) y de algún programa de vivienda nacional, provincial o municipal, crédito hipotecario o similar, siempre que el objeto a construir sea una vivienda única, familiar y de habitación permanente y se acredite una residencia en el Distrito no menor a 3 años.
+CAPÍTULO 25: DERECHO DE MENSURA Y RELEVAMIENTO

@@ -1,0 +1,2 @@
+ARTÍCULO 88º: Las deducciones enumeradas en el ARTÍCULO anterior, sólo podrán efectuarse cuando los conceptos a que se refieren, correspondan a operaciones o actividades de las que deriven los ingresos objeto de la imposición.
+Las mismas deberán efectuarse en el período fiscal en que la erogación, débito fiscal o detracción tenga lugar y siempre que sean respaldadas por las registraciones contables o comprobantes respectivos.

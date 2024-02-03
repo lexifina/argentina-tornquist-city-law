@@ -1,0 +1,2 @@
+ARTÍCULO 158º: Son contribuyentes y/o responsables y estarán a cargo del pago de esta Tasa las mismas personas –físicas o jurídicas- de la Tasa SPU y Tasa por Conservación, Reparación y Mejorado de la Red Vial, con independencia de la característica de la propiedad.
+En el caso de los inmuebles que sufran algún tipo de recargo, como es el caso de los baldíos, el porcentual de la Tasa de Salud se aplicará sobre el líquido, es decir exento de los recargos.

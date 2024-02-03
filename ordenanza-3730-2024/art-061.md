@@ -1,0 +1,1 @@
+ARTÍCULO 61º: Son sujetos de la Tasa de Servicios Sanitarios los titulares del dominio, usufructuarios, poseedores a título de dueños, adjudicatarios y/o comodatarios, de los inmuebles localizados en la planta urbana del Municipio de Tornquist, con prescindencia de su inscripción en los registros o padrones.

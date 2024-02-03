@@ -1,0 +1,16 @@
+ARTÍCULO 86º: No integran la base imponible, los siguientes conceptos:
+Los importes correspondientes a Impuestos Internos, Impuesto al Valor Agregado, Débito Fiscal, e Impuestos para los Fondos Nacionales de Autopistas, Tecnológico, del Tabaco y de los Combustibles.
+Esta deducción sólo podrá ser efectuada por los contribuyentes de derecho de los gravámenes citados, en tanto se encuentren inscriptos como tales. -
+El importe a computar, será el del débito fiscal o el del monto liquidado según se trate del Impuesto al Valor Agregado, o de los restantes gravámenes respectivamente, y en todos los casos, en la medida en que correspondan a las operaciones de la actividad gravada, realizadas en el período fiscal que se liquida.
+Los importes que constituyan reintegro de capital en los casos de depósitos, préstamos, créditos, descuentos y adelantos, y toda otra operación de tipo financiero, así como sus renovaciones, repeticiones, prórrogas, espera, y otras facilidades, cualquiera sea la modalidad o forma de instrumentación adoptada.
+Los reintegros que perciban los comisionistas, consignatarios y similares, correspondientes a gastos efectuados por cuenta de terceros, en las operaciones de intermediación en que actúen. Tratándose de concesionarios o agentes oficiales de ventas, lo dispuesto en el párrafo anterior sólo será de aplicación a los del estado, en materia de juegos de azar y similares, y de combustible.
+Los subsidios y subvenciones que otorgue el Estado Nacional, Provincial o Municipalidades.
+Las sumas percibidas por los exportadores de bienes o servicios, en concepto de reintegros o reembolsos, acordados por la Nación.
+Los ingresos correspondientes a la venta de bienes de uso.
+Los importes que correspondan al productor asociado por la entrega de su producción en las cooperativas que comercialicen producción agrícola, únicamente, y el retorno respectivo.
+La norma precedente no es de aplicación para las cooperativas o secciones que actúen como consignatarias de hacienda.
+En las cooperativas de grado superior, los importes que correspondan a las cooperativas agrícolas asociadas de grado inferior, por la entrega de su producción agrícola y el retorno respectivo.
+Los importes abonados a otras entidades prestatarias de servicios públicos, en el caso de cooperativas o secciones de provisión de los mismos servicios, excluidos transporte y comunicaciones.
+Los ingresos provenientes de exportaciones, entendiéndose por tales, la actividad consistente en la venta de productos y mercaderías efectuadas al exterior por el exportador con sujeción a los mecanismos aplicados por la Administración Nacional de Aduana.
+Las cooperativas citadas en los incisos g) y h) del presente artículo, podrán pagar la tasa deduciendo los conceptos mencionados en los citados incisos, y aplicando las normas específicas, dispuesta por la Ordenanza para estos casos, o bien podrán hacerlo aplicando las alícuotas pertinentes sobre el total de sus ingresos.
+Efectuada la opción, en la forma que determinará la Municipalidad, no podrá ser variada sin autorización expresa de la misma. Si la opción no se efectuara en el plazo que se determine, se considerará que el contribuyente ha optado por el método de liquidar el gravamen sobre la totalidad de los ingresos.

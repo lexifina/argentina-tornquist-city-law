@@ -1,0 +1,1 @@
+ARTÍCULO 81º: La vigencia de la habilitación para el funcionamiento de los locales destinados a comercios, industrias, oficinas o actividades similares, dependerá de que cumplan todas las normas vigentes sobre higiene, seguridad y obligaciones fiscales, establecidas por el Municipio y/o la Provincia de Buenos Aires y AFIP.

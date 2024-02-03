@@ -1,0 +1,40 @@
+ARTÍCULO 2º: La presente ordenanza se denominará CÓDIGO TRIBUTARIO MUNICIPAL, comprende las disposiciones fiscales, generales y específicas, correspondiente al conjunto de las obligaciones tributarias de los contribuyentes del Partido de Tornquist.
+El Código Tributario Municipal (CTM) se organiza de la siguiente manera:
+Título I: de los Tributos Fiscales
+Capítulo 1: de las obligaciones Tributarias
+Capítulo 2: de las atribuciones del Departamento Ejecutivo
+Capítulo 3: de los Contribuyentes y responsables
+Capítulo 4: de las obligaciones fiscales
+Capítulo 5: de las bonificaciones, prescripciones y exenciones
+Capítulo 6: de las infracciones, multas y sanciones
+Título II: de las Tasas
+Capítulo 7: Tasa por Servicio Público Urbano
+Capítulo 8: Tasa de Servicio Sanitario
+Capítulo 9: Tasa de Servicios Especiales de Limpieza e Higiene
+Capítulo 10: Tasa de Habilitación de Comercio e Industria
+Capítulo 11: Tasa por Inspección de Seguridad e Higiene
+Capítulo 12: Tasa por Conservación, Reparación y Mejorado de la Red Vial
+Capítulo 13: Tasa por Servicios Administrativos
+Capítulo 14: Tasa por Control de Marcas y Señales
+Capítulo 15: Tasa por Servicios Asistenciales
+Capítulo 16: Tasa por Servicios Varios
+Capítulo 17: Tasa de Salud
+Título III: de los Derechos
+Capítulo 18: Derecho por Servicios Turísticos
+Capítulo 19: Derecho de ingreso al Parque Provincial Ernesto Tornquist
+Capítulo 20: Derecho de ingreso a la Casa del Niño Municipal María Elena Walsh
+Capítulo 21: Derecho de Cementerio
+Capítulo 22: Derecho de Ocupación del Espacio Público
+Capítulo 23: Derecho de Publicidad y Propaganda en la vía pública
+Capítulo 24: Derecho de Construcción
+Capítulo 25: Derecho de mensura y relevamiento
+Capítulo 26: Derecho de Explotación de canteras y extracción de minerales
+Capítulo 27: Patente de rodados
+Título IV: de los Permisos
+Capítulo 28: Permiso para comercializar en la vía pública
+Capítulo 29: Permiso para la realización de espectáculos públicos
+Título V: de las Contribuciones
+Capítulo 30: Contribución por Mejoras
+Capítulo 31: Contribución por Valorización
+Título VI: Disposiciones complementarias
+CAPÍTULO 1: DE LAS OBLIGACIONES TRIBUTARIAS

@@ -1,0 +1,2 @@
+ARTÍCULO 249º: La base imponible para la determinación de este gravamen, será el valor total de la entrada simple o integrada o el permiso para la realización del espectáculo.
+Se considera entrada, a cualquier billete o tarjeta al que se asigne un precio que se exija como condición para tener acceso al espectáculo, como también los que se obtengan por las ventas de bono contribución o donación, o entradas con derecho a consumición, que se exijan para tener acceso a los actos que se programen.

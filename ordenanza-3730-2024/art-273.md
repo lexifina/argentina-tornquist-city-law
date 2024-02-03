@@ -1,0 +1,1 @@
+ARTÍCULO 273º: Las acciones financiadas por el Fondo de Desarrollo Urbano son complementarias de aquellas cuya responsabilidad es de los diferentes niveles del Estado, de las que se encuentran obligadas por ley e impuestas a personas físicas o jurídicas, particulares o públicas, o aquellas que se materializan a través de convenios.

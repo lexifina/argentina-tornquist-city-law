@@ -1,0 +1,1 @@
+ARTÍCULO 222º: Los titulares, permisionarios, arrendatarios o concesionarios están obligados a pagar un derecho de extracción entendiéndose como tal, la extracción de material de su medio natural. El citado derecho se abonará por tonelada extraída.

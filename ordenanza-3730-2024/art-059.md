@@ -1,0 +1,1 @@
+ARTÍCULO 59º: La Tasa por Servicios Sanitarios corresponde a la contraprestación por el mantenimiento del sistema de provisión de agua de red y por la provisión de la misma, no así del sistema de evacuación el cual corresponde a la empresa ABSA.

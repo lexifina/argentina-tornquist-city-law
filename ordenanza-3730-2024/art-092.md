@@ -1,0 +1,1 @@
+ARTÍCULO 92º: No se computarán como ingresos, la parte de las primas de seguros destinada a reservas matemáticas y de riesgos en curso, reaseguros pasivos y siniestros y otras obligaciones con asegurados.

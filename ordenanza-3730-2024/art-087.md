@@ -1,0 +1,6 @@
+ARTÍCULO 87º: En los casos en que se determine por el principio general, se deducirán de la base imponible los siguientes conceptos:
+Las sumas correspondientes a devoluciones, bonificaciones y descuentos efectivamente acordados por épocas de pago, volumen de ventas u otros conceptos similares, generalmente admitidos según los usos y costumbres, correspondientes al período fiscal que se liquida.
+El importe de los créditos incobrables producidos en el transcurso del período fiscal que se liquida y que hayan debido computarse como ingreso gravado en cualquier período fiscal. Esta deducción no será procedente cuando la liquidación se efectúe por el método de lo percibido.
+Constituyen índices justificativos de la incobrabilidad, cualquiera de los siguientes: la cesación de pagos real y manifiesta, la quiebra, el concurso preventivo, la desaparición del deudor, la prescripción, la iniciación del cobro compulsivo.
+En caso de posterior recupero, total o parcial, de los créditos deducidos por tal concepto, se considerará como ingreso gravado imputable al período fiscal en que el hecho ocurre. -
+Los importes correspondientes a envases y mercaderías devueltas por el comprador, siempre que no se trate de actos de retroventa o retrocesión.

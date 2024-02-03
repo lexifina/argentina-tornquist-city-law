@@ -1,0 +1,3 @@
+ARTÍCULO 65º: Solicitud del medidor: En caso que el solicitante no sea el titular de la partida deberá presentar documentación legal que acredite su condición y vínculo jurídico que justifique el pedido y no registrar deuda sobre la partida en cuestión. Se le permitirá al contribuyente solicitante suscribir un convenio de pago por la deuda de tasas municipales.
+Deberá presentar Planos Aprobados que justifiquen la solicitud de más de una conexión sobre una misma partida.
+No se otorgarán conexiones en aquellas propiedades que tengan pendiente subdivisiones hasta que no sean legalmente aprobadas.

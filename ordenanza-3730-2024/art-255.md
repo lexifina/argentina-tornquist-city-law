@@ -1,0 +1,3 @@
+ARTÍCULO 255º: Las contribuciones son imposiciones tributarias que se basan en la creación de una mejora a la propiedad, física o económica. Distinguimos dos formas diferentes: por mejoras o por valorización.
+Inciso 1: La contribución por mejoras parte de identificar el costo de la mejora y distribuirlo proporcionalmente entre los sujetos beneficiarios de la misma. El Municipio aporta los recursos para la obra y recupera la totalidad o parte de los costos que la misma genera.
+Inciso 2: La contribución por valorización parte de identificar el mayor valor que una propiedad adquiere a partir de las acciones emprendidas por el Estado y recuperar parte o toda la valorización generada.

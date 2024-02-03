@@ -1,0 +1,2 @@
+ARTÍCULO 226º: Son sujetos imponibles del presente tributo, los propietarios de los vehículos inscriptos en el Registro Nacional de la Propiedad del Automotor radicados o con guarda habitual en el partido de Tornquist, que no se encuentren tributando, excepto los que se encuentren comprendidos en el impuesto al automotor de la provincia de Buenos Aires u otro gravamen similar de cualquier jurisdicción.
+DE LA BASE IMPONIBLE

@@ -1,0 +1,2 @@
+ARTÍCULO 5º: Todas las funciones referentes a la determinación, fiscalización, percepción y devolución de los tributos municipales establecidos por esta Ordenanza Tributaria y la reglamentación del procedimiento de aplicación de sanciones por las infracciones a las mismas, competen al Departamento Ejecutivo, ajustándose a las disposiciones de la Ley Orgánica de las Municipalidades.
+CAPÍTULO 2: DE LAS ATRIBUCIONES DEL DEPARTAMENTO EJECUTIVO

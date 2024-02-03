@@ -1,0 +1,1 @@
+ARTÍCULO 28º: Podrán compensarse de oficio los saldos acreedores, cualquiera sea la forma o procedimiento que se establezca con las deudas, saldos deudores de: derechos, tasas, permisos, contribuciones, multas, recargos e intereses determinados por los obligados o por la Municipalidad, respetando el orden establecido en el ARTÍCULO precedente.

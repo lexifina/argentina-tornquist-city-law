@@ -1,0 +1,1 @@
+ARTÍCULO 215º: Se abonará al contado. Las partidas en cuestión no deberán registrar deudas de tasas y demás servicios prestados por la Municipalidad de Tornquist. En el caso de estar adherido a un convenio de pago, el mismo, deberá ser cancelado previo al visado.

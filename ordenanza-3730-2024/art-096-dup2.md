@@ -1,0 +1,2 @@
+ARTÍCULO 96º: De la base imponible no podrán retraerse los tributos que incidan sobre la actividad, salvo los específicamente determinados en este Código Municipal Tributario.
+Cuando el precio se pacte en especie, el ingreso bruto estará constituido por la valuación de la cosa entregada, la locación, el interés o el servicio prestado, aplicando los precios, la tasa de interés, el valor locativo, u otros oficiales o corrientes en plaza, a la fecha de generarse el devengamiento.

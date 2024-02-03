@@ -1,0 +1,1 @@
+ARTÍCULO 287º: Además de los deberes contenidos en el presente Código Municipal Tributario, los contribuyentes, responsables y terceros deberán cumplir con aquellas normas que establezcan otras disposiciones particulares y/o normas especiales, sean éstas locales, provinciales o nacionales, relacionadas con los tributos mencionados.

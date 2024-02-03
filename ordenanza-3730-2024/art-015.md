@@ -1,0 +1,1 @@
+ARTÍCULO 15º: Cuando un mismo hecho o acto imponible esté relacionado con dos o más personas de las que se enumeran en esta Ordenanza, todos se consideran contribuyentes por igual y solidariamente obligados al pago de tributos por su totalidad. -

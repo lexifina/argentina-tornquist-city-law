@@ -1,0 +1,1 @@
+ARTÍCULO 248º: Por la realización de encuentros deportivos, artísticos y todo otro espectáculo y/o diversión o reunión social de carácter público, así como también la realización de espectáculos o similares en las instalaciones del Teatro Municipal Rodolfo Funke, se abonarán los derechos que al efecto se establezcan.

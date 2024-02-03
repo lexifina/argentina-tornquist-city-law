@@ -1,0 +1,2 @@
+ARTÍCULO 71º: Queda terminantemente prohibido la extracción y transporte dentro del Municipio, de los materiales contenidos en los pozos sumideros sin previa desinfección de los mismos. Dicha desinfección de los líquidos se efectuará mediante la utilización de los esterilizantes químicos que aconseje la Oficina competente y adoptando las precauciones del caso, a fin de evitar peligros y molestias a los vecinos transeúntes.
+CAPÍTULO 10: TASA POR HABILITACIÓN DE COMERCIO E INDUSTRIA

@@ -1,0 +1,1 @@
+ARTÍCULO 157º: La base imponible de la Tasa de Salud es el valor determinado por la Tasa de Servicios Públicos Urbanos (SPU) y la Tasa por Conservación, Reparación y Mejorado de la Red Vial (RV), respecto de los inmuebles urbanos y rurales, y su monto se establece como un porcentaje de los valores de ambas Tasas, según corresponda.

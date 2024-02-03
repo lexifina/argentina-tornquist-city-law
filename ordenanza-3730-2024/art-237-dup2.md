@@ -1,0 +1,1 @@
+ARTÍCULO 237º: Por la extensión de licencia para la comercialización en la vía pública, en cumplimiento de las reglamentaciones municipales vigentes, se abonará el permiso fijado en este Capítulo, en relación con la naturaleza de los productos y servicios que se trate.

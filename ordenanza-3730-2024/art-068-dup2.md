@@ -1,0 +1,5 @@
+ARTÍCULO 68º: Son contribuyentes y/o responsables de esta Tasa:
+Los que soliciten alguno de los servicios mencionados en el ARTÍCULO anterior.
+Los propietarios, por la limpieza e higiene de su predio toda vez que intimados a efectuar por su cuenta, no lo realicen dentro de los quince (15) días corridos siguientes. En tal caso, los organismos competentes efectuarán las tareas correspondientes con cargo a los propietarios, quienes serán en este caso, los responsables del pago de la tasa.
+Los titulares de dominio de los inmuebles, con exclusión de los nudos propietarios, los usufructuarios, poseedores a título de dueño, o quien solicite los servicios. -
+El pago del presente tributo, deberá efectuarse al solicitar el servicio, o dentro del lapso de treinta (30) días, en el caso de que la Municipalidad deba actuar de oficio, ante la pasividad del propietario. Si cumplido dicho plazo el propietario no formaliza el pago, el mismo será cargado a la cuenta de la Tasa de Servicios Públicos Urbanos con un recargo del doble del concepto emitido.

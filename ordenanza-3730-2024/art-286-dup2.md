@@ -1,0 +1,1 @@
+ARTÍCULO 286º: El Departamento Ejecutivo queda facultado por la presente Ordenanza para prorrogar las fechas de los vencimientos citados en forma general, o para cada uno de los tributos en particular, cuando alguna razón lo justifique.

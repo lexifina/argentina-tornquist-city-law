@@ -1,0 +1,3 @@
+ARTÍCULO 102º: Los contribuyentes deben comunicar a la Municipalidad la cesación de sus actividades dentro de los quince (15) días de producida, sin perjuicio del derecho de la Comuna para producir su baja de oficio cuando se comprobare el hecho, y el cobro de los respectivos gravámenes, recargos y multas adeudadas.
+Para otorgar el cese de actividades, el contribuyente no deberá registrar deudas en concepto de tasas, derechos, multas y/o recargos que le correspondieren.
+Lo dispuesto precedentemente no será de aplicación cuando se encuentren comprendidos en alguna de las situaciones previstas esta ordenanza.

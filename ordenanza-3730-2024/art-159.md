@@ -1,0 +1,1 @@
+ARTÍCULO 159º: El pago de la presente Tasa será mensual en el caso de los inmuebles urbanos y bimestral en el caso de los inmuebles rurales. Su ingreso se realizará en los mismos plazos y tiempos establecidos para ambas tasas.

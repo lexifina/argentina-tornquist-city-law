@@ -1,0 +1,2 @@
+ARTÍCULO 164°: Establézcase un derecho de asistencia a la CASA DEL NIÑO MUNICIPAL MARÍA ELENA WALSH. La misma está destinada a niños de 3 meses a 8 años de edad que tengan domicilio en la localidad de Tornquist.
+Su objetivo es principal es brindar un espacio seguro para el niño permaneciendo al cuidado del personal municipal idóneo, promoviendo valores como respeto, gratitud, solidaridad, compañerismo, empatía, responsabilidad e igualdad. Buscando favorecer el desarrollo afectivo, cognitivo y social de los niños.

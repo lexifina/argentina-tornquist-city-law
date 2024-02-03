@@ -1,0 +1,3 @@
+ARTÍCULO 155º: Cuando por el ejercicio de la actividad de transporte escolar, no se registre ingresos motivada por el receso escolar, se abonará la tasa proporcional a los meses trabajados, tomando la fracción como mes entero. Asimismo, cuando se haya requerido la autorización de más de un vehículo para la actividad de transporte escolar, el contribuyente podrá solicitar la reducción de la tasa para las unidades adicionales a la primera, en forma proporcional a los menores ingresos que las mismas produzcan con relación a aquella.
+En los restantes supuestos podrá exceptuarse temporalmente del pago de esta tasa a quien justifique debidamente su inactividad.
+CAPÍTULO 17: TASA DE SALUD

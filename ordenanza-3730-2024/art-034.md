@@ -1,0 +1,1 @@
+ARTÍCULO 34º: El Departamento Ejecutivo, queda facultado para prorrogar las fechas de vencimiento o pagos previstos en Disposiciones complementarias, de la presente Ordenanza, cuando lo considere necesario.

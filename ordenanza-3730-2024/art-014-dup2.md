@@ -1,0 +1,7 @@
+ARTÍCULO 14º: Están obligados a pagar Tasas, derechos y sus accesorios, con los recursos que administren o que disponen y subsidiariamente con los propios, como responsables solidarios de cumplimiento de la deuda y demás obligaciones de sus antecesores, representados, mandantes o titulares de los bienes administrados o en liquidación, en la forma y oportunidad que rijan para aquellos, salvo que demuestren a la Municipalidad que éstos los han colocado en la imposibilidad de cumplir correcta y tempestivamente con su deberes fiscales, las siguientes personas:
+Los sucesores de derechos y acciones sobre bienes, o del activo pasivo de las empresas o explotaciones, que constituyan el objeto de hechos y/o actos imponibles, servicios retribuidos a causa de contribuciones, se hayan cumplimentado o no, las disposiciones de la Ley 11.867.
+El cónyuge que administre bienes de otro.
+Los padres, tutores o curadores de incapaces.
+Los síndicos, liquidadores de las quiebras y concursos civiles, representantes de sociedades en liquidación, administradores legales o judiciales, administradores de las sucesiones y a falta de éstos, el cónyuge supérstite y demás herederos.
+Los directores, gerentes, apoderados y demás representantes de las personas jurídicas y otras entidades incluidas en el inciso del ARTÍCULO anterior de la presente Ordenanza.
+Los agentes de retención o recaudación, constituidos como tales, por esta Ordenanza.

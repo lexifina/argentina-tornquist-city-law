@@ -1,0 +1,1 @@
+ARTÍCULO 212º: Son contribuyentes responsables de este gravamen los propietarios de los bienes objeto del relevamiento. En los casos en que el profesional interviniente sea el solicitante, será éste el responsable.

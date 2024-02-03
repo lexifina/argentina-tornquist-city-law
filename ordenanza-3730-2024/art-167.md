@@ -1,0 +1,1 @@
+ARTÍCULO 167º: Son contribuyentes las personas físicas o jurídicas, a las que se les acuerde concesión, arrendamiento, permiso o se les preste, a su solicitud, los servicios establecidos en el presente Capítulo.

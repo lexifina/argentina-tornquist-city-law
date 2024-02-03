@@ -1,0 +1,1 @@
+ARTÍCULO 44º: Por Servicios Públicos Urbanos se entienden a todas aquellas acciones sobre los hechos imponibles posteriormente enumerados, que impliquen su conservación y mantenimiento en condiciones adecuadas para una buena prestación de los servicios, siempre y cuando no se prevean gravámenes especiales por los mismos.

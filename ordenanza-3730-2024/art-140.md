@@ -1,0 +1,4 @@
+ARTÍCULO 140º: De los trámites municipales. Los que introduzcan hacienda de otros Partidos, deberán archivar las guías correspondientes en la Municipalidad, dentro del plazo de vigencia de las mismas. La vigencia de las guías de traslado de hacienda, se establece en treinta (30) días contados desde la fecha de emisión.
+Inciso 1.- Para trámite de las operaciones, los hacendados o matarifes, deberán proceder al registro de sus firmas y de sus boletos de marcas y señales, en la Oficina de Marcas y Señales.
+Inciso 2.- Para marcar, señalar, reducir a marca, debe solicitarse la autorización municipal, con una anticipación mínima de cuarenta y ocho (48) horas, en caso contrario, no se despachará a los interesados, ni guías ni certificados. -
+Inciso 3.- Las solicitudes para marcación y demás documentos de vacunos, ovinos, equinos, porcinos, etc., deberán presentarse por separado.

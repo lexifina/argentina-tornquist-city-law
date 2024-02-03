@@ -1,0 +1,1 @@
+ARTÍCULO 43º: La Tasa por Servicios Públicos (SPU) deberá abonarse por cada uno de los inmuebles, ocupados o no, ubicados en el Partido de Tornquist, se presten los servicios directa o indirectamente, total o parcialmente, diaria o periódicamente.

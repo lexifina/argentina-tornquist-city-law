@@ -1,0 +1,1 @@
+ARTÍCULO 208º: Las partidas en cuestión no deberán registrar deudas de tasas y demás servicios prestados por la Municipalidad de Tornquist. En el caso de estar adherido a un convenio de pago, el mismo, deberá ser cancelado previo al otorgamiento del final de obra.

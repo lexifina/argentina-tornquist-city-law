@@ -1,0 +1,1 @@
+ARTÍCULO 238º: El permiso por comercialización ambulante, se aplicarán en función del tiempo de los permisos otorgados únicamente y según la naturaleza de los bienes o servicios ofrecidos, siguiendo lo establecido en la Ordenanza nro. 3375/21.

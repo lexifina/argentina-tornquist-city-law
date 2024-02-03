@@ -1,0 +1,4 @@
+ARTÍCULO 136º: El permiso de marcación o señalada, será exigible dentro de los términos fijados en el Decreto Ley Nº 3060 y su reglamentación.
+Inciso 1.- Los mataderos o frigoríficos o particulares deberán proceder al archivo en la Municipalidad de las guías de traslado del ganado sacrificado y, cuando en éstas no se establezca el destino “a faena”, deberán obtener además la guía de faena con la que se autorizará la matanza.
+Inciso 2.- Sin perjuicio de lo dispuesto en los artículos anteriores, toda operación que se efectuara con ganado o cuero, queda sujeto al archivo y extracción de las respectivas guías.
+Inciso 3.- En toda la documentación se colocará el número inmutable de la marca y/o señal contenido en el respectivo “boleto”, cumplimentándose toda disposición emergente del Código Rural de la Provincia de Buenos Aires y sus sucesivas modificaciones.
