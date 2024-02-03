@@ -1,0 +1,1 @@
+ARTÍCULO 131º: Cuando la Municipalidad actúe de oficio, los derechos serán a cargo de la persona o entidad contra la cual se haya deducido el procedimiento, siempre que la circunstancia que la origina resultare acreditada.

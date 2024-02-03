@@ -1,0 +1,1 @@
+ARTÍCULO 24º: Las constancias escritas constituirán elementos de prueba en las determinaciones de oficio, de reconsideración o recurso de apelación, o en los procedimientos por infracción a esta Ordenanza Tributaria.

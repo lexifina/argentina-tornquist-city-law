@@ -1,0 +1,2 @@
+ARTÍCULO 190º: Conforme a la ubicación geográfica de cada comercio, industria o empresa, a los efectos del cálculo del Derecho de Publicidad y Propaganda, la Autoridad de Aplicación determinará zonas urbanas y coeficientes especiales los que aplicarán para una equilibrada imposición tributaria.
+Los coeficientes reconocerán las distintas situaciones de rentabilidad urbana y, fundamentalmente, el valor paisajístico de algunas zonas. Los incrementos se sustentan en moderar la contaminación visual y en asegurar la preservación del paisaje ambiental y urbano.

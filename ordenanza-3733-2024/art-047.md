@@ -1,0 +1,2 @@
+ARTÍCULO 47º: La base imponible de la Tasa SPU es la valuación general del inmueble, la cual está constituida por la sumatoria de la valuación del suelo y de la mejora.
+El Departamento Ejecutivo determinará la autoridad de aplicación encargada de mantener actualizada la información jurídica, urbana y económica de los inmuebles de cada una de las localidades del Partido y podrá realizar convenios con los organismos provinciales y nacionales para actualizar dicha información y compartir criterios.

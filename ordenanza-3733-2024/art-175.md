@@ -1,0 +1,4 @@
+ARTÍCULO 175º: Queda prohibido introducir cambios en las características, dimensiones y destinos de los sitios dispuestos.
+Inciso 1.- En los lotes destinados a sepulturas, queda prohibida la construcción de nichos, bóvedas y sepulcros, como así también en los nichos, la realización de modificaciones que tiendan a variar su capacidad.
+Inciso 2.- Queda prohibido el arrendamiento de nichos, nicheras o sepulturas que no tengan por fin inmediato la inhumación.
+Inciso 3.- En el caso de sepulturas, bóvedas o panteones, es obligación de la persona responsable el mantener en óptimas condiciones su construcción, como también su vereda. El no cumplimiento de esta obligación faculta al Departamento Ejecutivo a aplicar recargos que van desde el 30% al 300% según la gravedad del estado de conservación de la misma.

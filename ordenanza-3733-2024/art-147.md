@@ -1,0 +1,2 @@
+ARTÍCULO 147º: Quedarán eximidos parcial o totalmente del pago del presente tributo los contribuyentes que posean ficha socio-económica otorgada por el área competente.
+El Departamento Ejecutivo podrá reglamentar que, mediante encuesta socio-económica, se determine el poder adquisitivo del grupo familiar, a efectos de asignarle el porcentaje de reducción a que estarán sujetos los importes establecidos en este apartado.

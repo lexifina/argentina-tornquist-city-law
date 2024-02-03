@@ -1,0 +1,1 @@
+ARTÍCULO 7º: Cuando no sea posible fijar el alcance de las disposiciones de esta Ordenanza Tributaria, serán de aplicación en forma analógica a los principios generales que rigen la tributación y subsidiariamente las disposiciones del código fiscal de la Provincia de Buenos Aires o Ley de Procedimientos Administrativos en ese orden.

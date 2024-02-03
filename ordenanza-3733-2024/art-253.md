@@ -1,0 +1,1 @@
+ARTÍCULO 253º: Una vez otorgada la autorización correspondiente y, habiendo especificado el lugar donde se desarrollará la actividad comprendida en este Capítulo, no se podrá trasladar a ningún otro sitio sin la previa autorización de la Municipalidad. Si el traslado fuera efectuado en forma indebida, dará derecho a la cancelación del permiso otorgado.

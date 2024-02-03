@@ -1,0 +1,1 @@
+ARTÍCULO 33º: En los supuestos de obligaciones sin plazos determinados, las mismas podrán ser ejecutadas por la vía judicial correspondiente, previa intimación fehaciente, por intermedio de la oficina que intervenga en la liquidación respectiva.

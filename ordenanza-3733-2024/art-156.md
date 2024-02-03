@@ -1,0 +1,1 @@
+ARTICULO 156°: Establézcase la Tasa de Salud cuyo objeto es financiar los gastos de insumos, materiales, equipos y/o mejora y reparación de infraestructura de los Hospitales Municipales y los Centros de Atención Primaria de la Salud. La Tasa será de carácter obligatorio en los términos del presente capítulo.

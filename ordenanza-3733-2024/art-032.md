@@ -1,0 +1,1 @@
+ARTÍCULO 32º: En las obligaciones a plazo el incumplimiento de una cuota, tornará exigible sin interpelación alguna, el total de las obligaciones como si fuera plazo vencido y será ejecutada por el total de la deuda por la vía de apremio y sin intimación previa.

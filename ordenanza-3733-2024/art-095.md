@@ -1,0 +1,2 @@
+ARTÍCULO 95º: Para las agencias de publicidad, la base imponible está dada por los ingresos provenientes de los “Servicios de Agencia”, las bonificaciones por volúmenes y los montos provenientes de servicios propios y productos que se facturen.
+Cuando la actividad consista en la simple intermediación, los ingresos provenientes de las comisiones recibirán el tratamiento previsto para comisionistas, consignatarios, mandatarios, corredores y representantes.-

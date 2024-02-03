@@ -1,0 +1,8 @@
+ARTÍCULO 13º: Los contribuyentes y demás responsables están obligados a cumplir con las disposiciones de esta Ordenanza, y los reglamentos que se dicten, con el fin de facilitar la determinación, verificación, fiscalización e ingreso de los gravámenes municipales. -
+Sin perjuicio de lo que se establezca de manera especial, los contribuyentes y responsables están obligados a:
+Solicitar la habilitación o permiso para realizar una actividad o hecho imponible. Solicitar el respectivo permiso de habilitación del local, donde se realicen actividades comerciales, industriales o similares, a comercios e industrias. -
+Comunicar a la Municipalidad dentro de los quince (15) días de producido cualquier hecho o acto que modifique la inscripción existente en los registros impositivos municipales o su situación como sujeto a obligaciones fiscales. -
+Presentar declaraciones juradas de los hechos imponibles, cuando se establezca este procedimiento para la determinación y recaudación de los gravámenes o cuando sea necesario para su contralor o fiscalización. -
+Conservar o exhibir a requerimiento de los funcionarios municipales competentes, dentro de los términos que en cada caso se fije, toda la documentación e información referida a operaciones o situaciones de carácter fiscal, para determinar o verificar los hechos o bases imponibles de los distintos gravámenes.-
+Facilitar, en general, con todos los medios a su alcance, las tareas de determinación, verificación y fiscalización impositiva en relación con las actividades o bienes que constituyan materia imponible. -
+Acreditar la personería cuando correspondiese.

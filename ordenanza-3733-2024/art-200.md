@@ -1,0 +1,1 @@
+ARTÍCULO 200º: Los derechos de construcción duran mientras la propiedad se encuentre sólidamente levantada y se extinguen con su demolición, o a los tres años del pago de los mismos cuando no se constate el inicio de obra o, a los tres años de ser considerada parada la obra, o cuando se determine el estado ruinoso de una obra.

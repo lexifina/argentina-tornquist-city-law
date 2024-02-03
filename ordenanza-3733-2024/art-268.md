@@ -1,0 +1,5 @@
+ARTÍCULO 268º: La contribución por valorización puede efectivizarse mediante los siguientes medios, pudiendo el Poder Ejecutivo municipal decidir por uno o utilizando las formas de manera combinada:
+Inciso 1.- En dinero en efectivo; el cual será destinado exclusivamente a la mejora de la equidad social y de la sustentabilidad ambiental, como ser: la construcción o mejoramiento de viviendas sociales, la construcción de obras de infraestructura de servicios públicos, áreas de recreación o equipamientos sociales.
+Inciso 2.- Cediendo al Municipio una porción del inmueble objeto de la imposición, de valor equivalente al monto exigible por la participación.
+Inciso 3.- Cediendo al Municipio inmuebles localizados en otras zonas del área Urbana o del Área Complementaria, con demostradas condiciones de seguridad ambiental y accesibilidad física, en cuyo caso deberá existir un cálculo de equivalencia de valores entre ambos emplazamientos a partir del cambio de normativa solicitado.
+Es potestad del Ejecutivo Municipal definir la forma en que una contribución por valorización debe ser pagada.

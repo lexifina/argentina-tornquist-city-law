@@ -1,0 +1,1 @@
+ARTÍCULO 21º: La Municipalidad podrá fijar índices o coeficientes para reglar las determinaciones de oficio con carácter general o especial, en relación con las actividades y operaciones de los contribuyentes o sectores de los mismos.

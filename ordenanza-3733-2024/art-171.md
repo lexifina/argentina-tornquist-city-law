@@ -1,0 +1,2 @@
+ARTÍCULO 171º: Vencidos los plazos de arrendamiento de sepulturas o nichos sin ser renovados o sin concederse la renovación, si no se retiran los restos por los deudos dentro de los sesenta (60) días después del vencimiento, serán exhumados y se depositarán en el osario general o fosa común, según corresponda.
+Inciso 1.- Las sepulturas y nichos arrendados por períodos renovables que se desocupen antes del vencimiento del arrendamiento, pasarán a ser propiedad municipal, perdiendo los arrendatarios los derechos que tuvieran en el carácter de tales.

@@ -1,0 +1,1 @@
+ARTICULO 276°: La frecuencia mencionada en el Artículo 275° corresponde a la asistencia semanal dentro de un mes calendario comprendiendo tanto la natación libre como la posibilidad de tomar clases en los días y horarios que determinará el Departamento Ejecutivo.

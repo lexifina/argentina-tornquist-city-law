@@ -1,0 +1,2 @@
+ARTÍCULO 110º: Del ingreso bruto no podrán efectuarse otras detracciones que las explícitamente enunciadas en la presente Ordenanza, las que únicamente podrán ser invocadas por parte de los responsables que en cada caso se indica.
+No dejará de gravarse un ramo o actividad por el hecho de que no haya sido prevista en forma expresa en esta Ordenanza. En tal supuesto, se aplicará la alícuota general.

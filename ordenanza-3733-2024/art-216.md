@@ -1,0 +1,2 @@
+ARTÍCULO 216º: Las edificaciones que se encuentren en las partidas en cuestión deberán estar declaradas con expediente de obra aprobado por el municipio previo al visado del plano. Exceptuando aquellas de data anterior al año 1.950 y una superficie menor a 60 m2, en estos casos se deberá presentar una declaración jurada de edificación.
+En el caso de prescripciones adquisitivas, se deberá presentar una nota compromiso que cuente con un año posterior a la sentencia judicial.

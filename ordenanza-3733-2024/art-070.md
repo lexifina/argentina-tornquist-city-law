@@ -1,0 +1,2 @@
+ARTÍCULO 70º: Cuando se trate de contribuyentes y/o responsables jubilados y/o pensionados, con respecto a su residencia permanente, se aplicará un cincuenta por ciento (50%) de descuento sobre las tarifas indicadas en el ARTÍCULO anterior.
+Cuando se trate de personas con capacidades socioeconómicas reducidas, se aplicará tal reducción o se eximirá de las mismas, previo informe social emitido por el Departamento Ejecutivo.

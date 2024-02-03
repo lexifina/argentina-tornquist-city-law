@@ -1,0 +1,2 @@
+ARTÍCULO 63º: El consumo mínimo para cada propiedad donde existe medidor instalado, será de quince (15) metros cúbicos mensuales. Las personas mayores de sesenta (60) años, las personas con discapacidad y los veteranos de Malvinas que estén comprendidos en el régimen de excepciones regulado en el ARTÍCULO 56° (incisos 3, 9 y 10) de la presente, tendrán una franquicia de 15 metros cúbicos por mes.
+Se encuentran eximidos de la Tasa por Servicios Sanitarios en un 100%, los inmuebles de dominio del Municipio de Tornquist y los Establecimientos Educativos del Distrito.

@@ -1,0 +1,1 @@
+ARTÍCULO 72º: Por los servicios de inspección dirigidos a verificar el cumplimiento de los requisitos exigibles para la habilitación de locales, establecimientos y oficinas destinados a comercios, industrias y actividades similares a tales, aún cuando se trate de servicios públicos, se abonará la tasa que al efecto se establezca.

@@ -1,0 +1,4 @@
+ARTÍCULO 204º: En el caso de obras de infraestructura vinculadas a la generación de energías renovables, como la construcción de parques eólicos, parques solares, sistemas de biogás o similares, así como aquellas actividades económicas derivadas de estas energías renovables, se aplicará por única vez como alícuota el 2% (2/100) del total de la obra civil.
+El pago de esta tasa podrá financiarse mediante un plan de pago de hasta 3 cuotas, pudiendo el Departamento Ejecutivo en los casos que lo justifique otorgar hasta 12 cuotas.
+Para su cálculo el contribuyente deberá presentar previamente una declaración jurada indicando el valor de la inversión a realizar, expresada en pesos con su correspondiente desglose de servicios y materiales.
+No se tomarán en cuenta para el cálculo del derecho en cuestión, el monto de los equipos importados de generación de energía.

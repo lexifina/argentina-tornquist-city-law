@@ -1,0 +1,1 @@
+ARTÍCULO 153º: El pago de la tasa deberá efectuarse en el momento de otorgarse autorizaciones o permisos, cuando resulte pertinente, o según la naturaleza de la obligación se abonará bimestralmente en la forma detallada en el presente.

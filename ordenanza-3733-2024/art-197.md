@@ -1,0 +1,1 @@
+ARTÍCULO 197º: La publicidad y propaganda fuera de la Línea Municipal queda alcanzada por el Derecho de Ocupación de Espacio Público y requiere de autorización previa. La ocupación del espacio y la acción de publicidad y propaganda sin autorización previa, no da derecho alguno y está sujeta a sobre tasas y multas por incumplimientos.

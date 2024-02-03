@@ -1,0 +1,5 @@
+ARTÍCULO 169º: El vencimiento de este derecho se producirá al 31 de octubre de cada año y consecuentemente cada cinco (5) años.
+Inciso 1.- En el caso que los titulares lo pidan, el Derecho podrá ser liquidado en forma anual, con un incremento porcentual del 50 %.
+Inciso 2.- Si vencido los sesenta días (60) del plazo señalado en el presente ARTÍCULO el responsable no ha cumplido con sus obligaciones, las mismas serán cargadas en la partida correspondiente al domicilio de dicha persona con el cien por ciento de recargo (100%). Si el titular no residiera en el Distrito, el recargo será del doscientos por ciento (200%).
+En ambos casos, el Departamento Ejecutivo notificará a los responsables de la situación al momento de cumplido el vencimiento y treinta (30) días antes de la aplicación del recargo.
+Inciso 3.- Las transferencias de concesiones dentro del cementerio se harán con autorización Municipal, a los efectos de los registros, debiéndose abonar por las mismas el 30% del valor total de la operación.

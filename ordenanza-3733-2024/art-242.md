@@ -1,0 +1,1 @@
+ARTÍCULO 242º: Los permisos del presente Capítulo, deberán ser abonados al otorgarse la autorización correspondiente y previo a la iniciación de la actividad. Para la renovación de dicho permiso para períodos subsiguientes, el pago deberá efectuarse al comienzo de cada periodo, dentro de los primeros cinco (5) días de su comienzo.

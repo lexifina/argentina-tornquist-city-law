@@ -1,0 +1,1 @@
+ARTÍCULO 179º: Se considera Espacio Público a todo aquel espacio que no es de dominio privado y concierne principalmente a las calles, avenidas, veredas, plazas, parques y todo otro espacio de similares características cuya accesibilidad sea libre y gratuita.

@@ -1,0 +1,1 @@
+ARTÍCULO 145º: En el caso de accidentes de trabajo o lesiones que sean responsabilidad de empleadores, compañías de seguros, empresas de transporte, compañías de espectáculos públicos, y terceros en general, quedarán constituidos en deudores por la totalidad del servicio prestado, en virtud de la responsabilidad civil de los mismos.

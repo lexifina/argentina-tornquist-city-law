@@ -1,0 +1,1 @@
+ARTÍCULO 257º: Toda obra física localizada en el Municipio de Tornquist, que beneficie de manera directa o indirecta a una propiedad, debe ser pagada total o parcialmente por los beneficiarios cuando se hayan realizado los actos administrativos que rigen la ley.

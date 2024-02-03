@@ -1,0 +1,1 @@
+ARTÍCULO 192º: La publicidad realizada por contribuyentes sin domicilio fiscal en el municipio, o de marcas foráneas, sean con o sin autorización municipal, tendrán un recargo de dos (2) veces el valor estipulado en la presente Ordenanza.

@@ -1,0 +1,2 @@
+ARTÍCULO 201º: El Municipio, a través de su autoridad de aplicación, definirá la normativa técnica, legal y administrativa vigente, determinando las condiciones de presentación de proyectos nuevos, ampliación, refacción o demolición, su aprobación e inspección por las áreas competentes.
+Sin perjuicio de ello, el Municipio podrá realizar relevamientos físicos u oculares, en terreno o con la asistencia de fotografías aéreas o satelitales, con el fin de identificar las mejoras no declaradas, incorporarlas en la base fiscal y liquidar los Derechos de Construcción.

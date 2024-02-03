@@ -1,0 +1,2 @@
+ARTÍCULO 174º: Para la reducción o exhumación de restos depositados en sepulturas, deberá transcurrir un período de cinco (5) años, excepto para aquellos ataúdes que posean caja metálica.
+Los restos de sepulturas o nichos cuyo arrendamiento no hubiera sido renovado a la fecha de su vencimiento, serán trasladados al osario general, previa publicación en uno o más periódicos de circulación en el Partido, invitando a los deudos a regularizar su situación de mora.

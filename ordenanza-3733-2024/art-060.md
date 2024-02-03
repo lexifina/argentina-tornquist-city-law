@@ -1,0 +1,3 @@
+ARTÍCULO 60º: La Tasa por Servicios Sanitarios deberá pagarse en cada inmueble dentro de los ejidos urbanos en los cuales la Municipalidad de Tornquist preste el servicio, que tengan edificación o sin ella.
+La base imponible está dada por un valor fijo, expresado como mínimo, y un valor variable, el cual se relaciona con el metro cúbico de agua suministrado.
+En los casos de inmuebles sometidos al régimen de propiedad horizontal con tanque de agua común y con servicios de agua corriente, cuando no pueda instalarse medidor individual, la tasa que corresponda será liquidada para cada una de las unidades funcionales, en la proporción que representan las mismas respecto del total del inmueble, de acuerdo al reglamento de copropiedad y administración.

@@ -1,0 +1,1 @@
+ARTÍCULO 142º: Por los servicios asistenciales que se presten en establecimientos municipales, tales como hospitales, asilos, salas de primeros auxilios, colonias de vacaciones y otros que por su naturaleza revistan el carácter de asistenciales, se deberán abonar los importes que al efecto se establezcan.
