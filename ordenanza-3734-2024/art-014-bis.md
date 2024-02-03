@@ -1,0 +1,1 @@
+ARTICULO 14º Bis: Modifíquese el porcentaje establecido en el Articulo 2, de la Ordenanza N° 2857/16, para el supuesto del Título Universitario, incrementándose del veinte por ciento (20%) al veinticinco por ciento (25%).-
