@@ -1,0 +1,15 @@
+Ordenanza Nº3782/24
+Ordenanza Nº 3782/24
+Tornquist, 05/06/2024
+VISTO:
+Las actuaciones del Expediente Nro. 229/24, donde se solicita la eximición del 70 % de la tasa por Conservación, Reparación y Mejorado de la Red Vial de la Partida Nro. 424, correspondiente a la Reserva Natural Privada Sierras Grandes, y;
+CONSIDERANDO:
+Que la Ley Provincial Nro. 10907 y sus modificaciones introducidas por la ley 12459, 12905 y 13757, declara reservas naturales aquellas áreas de la superficie y/o del subsuelo terrestre y/o cuerpos de agua existentes en la Provincia que, por razones de interés general, especialmente de orden científico, económico, estético o educativo deban sustraerse de la libre intervención humana a fin de asegurar la existencia a perpetuidad de uno o más elementos naturales o la naturaleza en su conjunto;
+Que la citada ley en su ARTICULO 3º, Texto según Ley 12.459, dice “Las reservas y monumentos naturales serán declaradas tales por una ley que se dicte al efecto, pudiendo por razones de celeridad o conveniencia, a los fines conservacionistas, ser así declaradas provisionalmente mediante un decreto del Poder Ejecutivo, en cuyo caso deberá elevar a la Legislatura el proyecto de ley para la ratificación correspondiente, en un plazo no mayor a dos (2) años”;
+Que en su ARTICULO 8º, Texto según Ley 12459, estipula que se podrá reconocerse a los titulares de propiedades particulares, sujetos al régimen de Reserva, beneficios de Exención en el pago del Impuesto Inmobiliario o reducción de su monto, por el tiempo que dure la declaración de reserva e Invita a los municipios de la Provincia a establecer un régimen de exenciones o reducción de las tasas y contribuciones municipales, acordes con los fines de la mencionada Ley;
+Que mediante el decreto Nro. 526/13 de la Provincia de Buenos Aires, de fecha julio de 2013, se declaró Reserva Natural Privada de objetivo definido Mixto, Educativo y Botánico “Sierras Grandes”, ubicada en el partido de Tornquist, a la superficie definida por la parcela identificada con la nomenclatura catastral: Circunscripción VII, Parcela 501, Partida Nro. 424;
+Que el mismo en su Artículo Nro. 3, establece una exención del 70% sobre el impuesto inmobiliario rural para el área afectada como reserva e invita al Municipio de Tornquist, a establecer un Régimen de exenciones o reducciones de las tasas y contribuciones municipales, de acuerdo a lo establecido en el artículo Nro. 8 de la ley Nro. 10907, Reservas y Monumentos Naturales-Provincia Buenos Aires;
+Que dicha parcela, está brindando opciones turísticas y ofreciendo servicios al visitante y junto con el Parque Provincial Ernesto Tornquist y el Monumento Natural Cerro Ventana constituye La Unidad de Conservación VENTANIA;
+Que es voluntad del Departamento Ejecutivo continuar otorgando una eximición para el presente ejercicio en la tasa por Conservación, Reparación y Mejorado de la Red Vial Municipal;
+Que el artículo 40º de la Ley Orgánica de las Municipalidades prevé un régimen de exenciones de tributos municipales con vigencia para el ejercicio;
+ORDENANZA
