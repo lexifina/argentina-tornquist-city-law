@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-tornquist",
+  "code": "AR-B-TORNQUIST",
+  "name": "Tornquist",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-tornquist-city-law",
+  "build": "built: municipal ordinances (208 ordinances, 208 versions) from https://sibom.slyt.gba.gob.ar/cities/125",
+  "language": "es",
+  "sources": 1
+}
